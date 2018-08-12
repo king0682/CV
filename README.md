@@ -1,2 +1,2 @@
 # CV
-the process followed by Dr. Hu
+the progressing followed by Dr. Hu
